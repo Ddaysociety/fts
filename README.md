@@ -1,0 +1,2 @@
+# fts
+Fuck the society
